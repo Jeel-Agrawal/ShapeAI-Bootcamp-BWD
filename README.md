@@ -1,1 +1,0 @@
-# ShapeAI-Bootcamp-BWD
